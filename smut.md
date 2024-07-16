@@ -4,13 +4,11 @@ Official /wcg/ Y Gallery account:\
 Username: legbutt\
 Password: legbuttlewd
 
-[Avialae](http://avialae.smackjeeves.com/)\
-Chapter 2 Page 52-57\
-Chapter 3 Page 76-98\
-Chapter 4 Page 3-8, 94-110\
-Chapter 5 Page 80-82, 92-107\
-Chapter 6 Page 23-26\
-Doujinshis:\
+[Avialae](https://yaoi.biz/avialae/chapter-1/page-0/)\
+Gay in smalltown grows wings, fucks ornithologist-wannabe, discovers his secret family history.  
+Updates: The story is complete. 
+
+Doujinshis/Extras: (All links are currently inactive)\
 [Cupid's Kiss](https://imgur.com/a/P0dd5I5)\
 [Duality of Man](https://imgur.com/a/gXQ5YSl)\
 [Cupid's Heart](https://imgur.com/a/qlNLv2b)\
@@ -18,20 +16,23 @@ Doujinshis:\
 [Takeover](https://imgur.com/a/gcYqCla)\
 [Done and Dusted](https://imgur.com/a/DMLACn3)\
 [Blood Moon](https://imgur.com/a/bynIfwe)
+Alt Links: [Paid Version (Print or PDF)](https://misslucidcomics.myshopify.com/collections/avialae)
 
-[Cans of Beans](http://www.cansofbeans.com)\
-http://imgur.com/a/rrO7X
+[Cans of Beans](http://www.cansofbeans.com/comics/september)\
+[Extra?](http://imgur.com/a/rrO7X)
 
 [Enthrall](http://enthrall.smackjeeves.com/)\
-Erotic Pages: Fidus pages 6-13
+Something about gay vampires and human slaves.  
+Erotic Pages: Fidus pages 6-13  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-113047)
 
-[Fritz Fargo](http://fritzfargo.com/)\
-[Head](http://www.mediafire.com/download/zmqog7owq5apd94)
+[Fritz Fargo](http://fritzfargo.com/comics/hot-bat-2/)\
+[Head (Extra)](http://www.mediafire.com/download/zmqog7owq5apd94)
 
 [Hotblood](http://hotbloodcomic.com/)\
 http://imgur.com/a/XCYq7
 
-[Kaito Shuno](http://kaitoshuno.com/)\
+[Kaito Shuno](https://tapas.io/series/KaitoShuno/info)\
 Erotic Pages: https://imgur.com/a/pv8OL \
 Those on Smackjeeves have died with Smackjeeves
 
